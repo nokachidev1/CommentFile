@@ -3954,14 +3954,6 @@ RecommendedBased on what's in this playlist
 
 3:22
 
-![](https://i.scdn.co/image/ab67616d00001e0224390f83f1043b742bbeb22e)
-
-[ใจผูกเจ็บ (HEARTROCKER) - Rock Version](https://open.spotify.com/track/5RR9RhZDLTKp4XNsTZsV9o) E[ToNy\_gospel](https://open.spotify.com/artist/0p2HzEpJgKgFiuZMEa6yoQ), [HEARTROCKER](https://open.spotify.com/artist/6IHQ0DIbderstwPg9alKXP)
-
-[HRK Home Sweet Home Vol1](https://open.spotify.com/album/5O0UM4vkH91laStadpSuxL)
-
-4:18
-
 ![](https://i.scdn.co/image/ab67616d00001e02b563a468b0dde8b8fbecdc2a)
 
 [Loop (ฉันจึงวนกลับมา)](https://open.spotify.com/track/2wyMhqD3UtR8Ucg59UZhZd) [ASIA7](https://open.spotify.com/artist/5ghOUzxpnQmnPQDwC1thIz)
